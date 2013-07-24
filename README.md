@@ -5,7 +5,20 @@ How does policy get made in Chicago?
 
 # Case 1: Sweet Home Chicago Ordinance
 
+Coalition of affordable housing advocate orgs and a labor union.
 
+* Bickerdike Redevelopment Corp
+* Action NOW
+* Albany Park Neighborhood Council
+* Bickerdike Redevelopment Corporation
+* Chicago Coalition for the Homeless, managing partner
+* Community Renewal Society
+* Jane Addams Senior Caucus
+* Kenwood Oakland Community Organization (KOCO)
+* Logan Square Neighborhood Association
+* Organization of the NorthEast (ONE Northside)
+* Service Employees International Union (SEIU) Healthcare Illinois/Indiana
+* Southwest Organizing Project (SWOP) 
 
 
 In December 10, X 2011, Walter Burnett 
